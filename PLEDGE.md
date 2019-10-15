@@ -130,3 +130,4 @@ In signing below, I agree to help build a user focused _**PLOW**_ culture at May
 - Somesh Kumar, signed the pledge on 07-August-2019.
 - Chandan Kumar, signed the pledge on 17-Sep-2019.
 - Niladri Halder, signed the pledge on 01-October-2019.
+- Abhishek Raj, signed the pledge on 15-October-2019
